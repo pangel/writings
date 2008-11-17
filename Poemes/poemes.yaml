@@ -1,0 +1,19 @@
+--- # Poème test
+date: 31-01-2006
+poeme: |
+  Ceci est un poème
+  Qui se décline en scène
+  Entre chaque saison
+  Le poème
+  
+  Reste blème
+  
+--- # Une super soirée
+date: 18-04-2008
+poeme: |
+  On se pose des questions
+  Sans jamais les peser
+  Ces questions qui nous font
+  Souvent nous réveiller
+
+...
