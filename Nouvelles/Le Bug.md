@@ -1,0 +1,54 @@
+Le Bug
+-------
+- Si tu ne restes pas sage le bug va te dévorer.
+
+- C’est qui le bug ?
+- C’est un monstre du passé…qui parfois revient… il entend les enfants qui s’agitent, et ça lui donne très faim !
+- Ca me fait même pas peur les monstres du passé ! Y peuvent pas voyager dans le temps d’abord.
+- Mais peut-être qu’il n’a jamais disparu. Il y a longtemps, il terrorisait tout le monde, même les ordinateurs. Mais peut-être, peut-être qu’il est seulement endormi, ou bien même qu’il se cache…quelque part…dans cette chambre !
+- Arrête ! Pourquoi il faisait peur aux ordinateurs le bug ?
+- C’était il y a très, très longtemps. Même quand moi j’étais plus jeune, tes grands-parents me racontaient la même histoire et ça les faisaient rire de me voir m’inquiéter pour les ordinateurs.
+- Mais pourquoi, il leur arrivait quoi aux ordinateurs ?
+- C’était un peu comme tomber malade. Parfois ils s’arrêtaient tout d’un coup et ils devenaient bons à rien. Il fallait appeler des experts qui trifouillaient dans sa mémoire, et quand ils trouvaient le bug qui était venu s’y glisser, ils l’enlevaient ! Mais le bug revenait très souvent, et personne ne savait quoi faire.
+- Les pauvres ordinateurs !
+- Il se passait des choses beaucoup plus graves parfois. Tout avait l’air normal, mais le bug était quand même là, et il changeait tout ce qui se passait dans l’ordinateur. Et l’ordinateur se mettait à raconter n’importe quoi, sauf que personne n’était au courant.
+- Quoi ?! Mais alors il fallait se méfier !
+- Oui, tout ce que les ordinateurs disaient, ça pouvaient être du n’importe quoi. Il fallait souvent vérifier, ou au moins ne pas oublier qu’on était jamais sûr de rien.
+- Mais alors il est parti maintenant le bug ?
+- Oui, c’était juste pour te faire peur. On n’a pas entendu un ordinateur dérailler depuis des générations.
+- Mais s’il revenait ?
+- C’est complètement impossible. Les ordinateurs ne se laissent plus avoir.
+- Mais comment on le saurait ?
+- Ecoute, c’est impossible que le bug revienne. Les ordinateurs sont trop différents aujourd’hui.
+- Et pourquoi c’est important comme ça un ordinateur ?
+- Pourquoi c’est important ? Eh bien…je ne sais pas moi, plein de choses.
+- Quoi par exemple ?
+- C’est difficile…attends une seconde. Ah, il y a toutes ces choses auxquelles on serait obligés de réfléchir sans eux !
+- Comme comment s’habiller le matin !
+- Oui, enfin ça ce n’est pas grand-chose comme effort.
+- Ah, moi je suis toujours ma liste.
+- Tu as raison, mais heureusement ils conseillent aussi pour des choses un peu plus importantes comme le budget du gouvernement, ou les programmes éducatifs.
+- Ils décident de tous ces trucs ?
+- Mais non, ils ne font que conseiller. Enfin, ils ne donnent que des bons conseils, alors…
+- Comment ils font ? Ils sont trop forts !
+- C’est compliqué. Au début, ils conseillaient de temps en temps. Il  y avait des gens qui décidaient tout eux-mêmes et d’autres qui écoutaient ce que l’ordinateur avait à leur dire. Mais bon, ils étaient beaucoup plus lourds dans le temps, pas comme nos petits ordinateurs d’aujourd’hui. Et il fallait que tous les soirs, les gens leur disent ce qu’ils avaient fait dans la journée, parce que sinon l’ordinateur aurait eu du mal à donner des conseils ! Et puis un jour, il y a un ministre, je ne me rappelle plus son nom, il a dit qu’il allait appliquer une décision conseillée par son ordinateur.
+- C’était quoi ?
+- Eh bien, dis-toi juste qu’avant cette loi, les voitures n’étaient pas à tout le monde. Chacun devait payer la sienne très cher et y faire bien attention. En plus, les gens avaient le droit d’acheter celle qu’ils voulaient, même des vieilles capable de détruire la planète très rapidement.
+- Ah c’était un bon conseil alors !
+- Bien sûr, sinon ça n’aurait pas eu l’effet incroyable que ça a eu ! Tout le monde a commencé à se faire conseiller.
+- Ils devaient tout raconter à l’ordinateur le soir ?
+- Au début oui, mais un jour une compagnie a sorti la poussière sensorielle, et tout le monde les a copiés. Mais c’était très cher au début, alors beaucoup de gens gardaient leur gros ordinateur dans un sac, avec juste un micro qui pendouillait pour enregistrer leur journée.
+- Mais mon professeur al a dit que, euh, la multiplicité des types d’acquisition sensorielle était la clé de l’acuité des propositions informelles de nos ordinateurs.
+- Bien sûr que c’est mieux si l’ordinateur sait plus de choses sur ta vie avant de te conseiller.
+- Et alors al s’est passé quoi après ?
+- C’est devenu très à la mode. Les gens se faisaient déjà conseiller sur quoi acheter ou qui rencontrer, mais surtout grâce à la poussière sensorielle qui enregistrait toute leur journée sans qu’ils y pensent, les ordinateurs ont commencé à trouver ce qui nous arrangeait le plus. L’année d’après, ils ont installé des pelouses sur les toits. C’était vraiment joli pour l’époque il paraît, et plein d’autres pays ont vu ça et se sont demandés si ça ne serait pas une bonne idée de se faire conseiller par des ordinateurs. Nous on avait notre pollution qui baissait et les gens qui commençaient à cultiver sur leurs toits.
+- Alors le bug n’existait plus !
+- Ah non, depuis longtemps. A l’époque de tes grands-parents, les gens se sont posés la question je crois bien. Plein de gens ont reçu le conseil de ne plus dire « il » ou « elle » mais autre chose, « al » par exemple. Les gens ont beaucoup discuté, et on a finit par suivre le conseil. Maintenant, tout le monde est d’accord que faire la différence entre « il » et « elle », c’est très irrespectueux ! Et puis c’est bête en plus, ça serait comme d’avoir un mot différent pour jeune ou vieux, ou riche ou pauvre.
+- Il faut suivre le conseil même si on n’est pas d’accord ?
+- Ca t’est déjà arrivée de ne pas être d’accord ?
+- Non, mais…
+- Si un jour ça t’arrive, réfléchis bien. L’ordinateur ne fait que suivre notre vie et se souvenir de tout. Il fait le travail de trouver ce qui est le mieux pour nous, même si on ne s’en rend pas compte tout de suite.
+- Et personne ne se dispute sur ça ?
+- Si, mais c’est rien par rapport à avant. I l ya eu un temps où les gens étaient si différents qu’ils ne pouvaient jamais s’entendre. Tout le monde essayait de s’en accommoder, mais les ordinateurs leur ont vite conseillé de se débarrasser des autres groupes. Alors il y a eu quelques problèmes, mais c’est le groupe qui avait toutes les armées et les bombes qui a gagné. C’est pour ça que tu vois des gens de toutes les couleurs sur les vieilles photos et les vieux films, alors qu’aujourd’hui, tout le monde est blanc.
+- Et alors, il se passerait quoi aujourd’hui s’il y avait un bug ?
+- Ben j’imagine qu’on se mettrait tous à faire n’importe quoi sans s’en rendre compte.
